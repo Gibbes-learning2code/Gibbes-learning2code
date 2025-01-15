@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Gibbes-learning2code
 - 👀 I’m interested in Python/React
-- 🌱 I’m currently learning both!
+- 🌱 I love to learn if you have any tips for me PLEASE reach out.
 - 💞️ I’m looking to collaborate on anything and with anyone willing to teach!
-- 📫 How to reach me Gibbes on discord!
+- 📫 The best way to reach me is Gibbes on discord!
 - 😄 Pronouns: he/him
 
 
